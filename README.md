@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MoOdivwri
-- 👀 I’m interested in data analytics, visualisation and football😂
+- 👀 I’m interested in data analytics, visualisation and books!
 - 🌱 I’m currently learning data forecasting methods
 - 📫 How to reach me : send me an email at modivwri@gmail.com
 - 😄 Pronouns: she/her
